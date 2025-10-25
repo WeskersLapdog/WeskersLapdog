@@ -1,4 +1,5 @@
 Just using this for ponytown.
+<img width="384" height="216" alt="image" src="https://github.com/user-attachments/assets/a0f9aac4-4568-4632-bb87-6f9399c1a7ea" />
 
 BYI
  - I don't talk on ponytown, I prefer just making facial expression + nodding/shaking head etc.
